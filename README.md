@@ -6,14 +6,8 @@ Relax in a beautiful atmosphere of high quality lounge music.
 
 ## Background
 
-This music collection generally consists of jazz, lo-fi, R&B and lounge music from various artists which were discovered circa 2019.
+This music collection generally consists of jazz, lo-fi, R&B and lounge music, as well as some classics, oldies and pop music from various artists which were discovered and collected circa 2019.
 
 ## Composition
 
-We ship within this package the following types of music:
-
-* Modern pop music artists (Ariana Grande, T-PAIN)
-* Modern world music artists (THEO, Tony Kakkar)
-* Chill out, lo-fi and lounge music (Jules Renauld, Vintage Café)
-* Hip-hop and R&B music artists (Kanye West, Wiz Khalifa)
-* Celebrity impersonators (Chrisette Michele/Audrey Hepburn, Michael Trapson/Michael Jackson)
+These are 2 premium quality music collections made by Eurohouse. One of them is basically consist of easy listening lo-fi music, but as well includes some legendary oldies (Men At Work, Michael Jackson), classical orchestral music themes (James Bond, Leaving Neverland), Old Hollywood songs (Audrey Hepburn, Marilyn Monroe). Another one of them includes many pop songs which were released in 2019, including Ariana Grande's 7 rings and many songs from T-PAIN's album of the year, 1UP.
