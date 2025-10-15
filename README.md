@@ -1,8 +1,8 @@
 # Eurohouse Orchestra
 
-Relax in a beautiful atmosphere of high quality lounge music.
+An unique digital collection of classical and popular music of all ages and genres, from jazz-age standard, to some memorable oldies, to the contemporary R&B and modern pop hits, this is a part of Eurohouse music almanac containing 2 albums with each including 200 tracks.
 
-"Elegance is the only beauty that never fades." - Audrey Hepburn
+> "Here’s to the crazy ones, the misfits, the rebels, the troublemakers, the round pegs in the square holes… the ones who see things differently — they’re not fond of rules… You can quote them, disagree with them, glorify or vilify them, but the only thing you can’t do is ignore them because they change things… they push the human race forward, and while some may see them as the crazy ones, we see genius, because the ones who are crazy enough to think that they can change the world, are the ones who do." - Steve Jobs, the founder and former CEO of Apple, Inc.
 
 ## Background
 
