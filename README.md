@@ -18,14 +18,10 @@ This music album presented by Eurohouse includes music of cool emotional palette
 
 Table of Contents:
 
-* 20 - Pieces of Classical Music | Totalling 20
-* 31 - Modern Jazz & Lounge Music | Totalling 51
-* 11 - Traditional Jazz & Pop Music | Totalling 62
-* 8 - 70's, 80's and 90's Hits | Totalling 70
-* 61 - Hip-Hop, R&B and Trap Music | Totalling 131
-* 29 - Western Pop & EDM Music | Totalling 160
-* 29 - World Music Tracks | Totalling 189
-* 11 - Special Soundtrack Themes | Totalling 200
+* Over 100 classical, traditional and jazz standard music pieces.
+  * Honorable mentions: 007 James Bond theme, Farewell of Slavianka.
+* Over 100 modern popular, hip&hop and R&B music hits.
+  * Honorable mentions: Ariana Grande, Camila Camello, Kalash, T-Pain.
 
 ### Eurohouse Orchestra
 
@@ -33,10 +29,7 @@ This music album presented by Eurohouse includes music of warm emotional palette
 
 Table of Contents:
 
-* 23 - Modern Jazz & Lounge Music | Totalling 23
-* 21 - Traditional Jazz & Pop Music | Totalling 44
-* 22 - 70's, 80's and 90's Hits | Totalling 66
-* 76 - Hip-Hop, R&B and Trap Music | Totalling 142
-* 42 - Western Pop & EDM Music | Totalling 184
-* 12 - World Music Tracks | Totalling 196
-* 4 - Special Soundtrack Themes | Totalling 200
+* Over 100 traditional pop, jazz standard and lounge music pieces.
+  * Honorable mentions: Adrian Truth, ØHENRY, LAKEY INSPIRED.
+* Over 100 modern popular, hip&hop and R&B music hits.
+  * Honorable mentions: Bruno Mars, Doja Cat, Don Toliver, SZA.
